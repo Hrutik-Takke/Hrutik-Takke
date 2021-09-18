@@ -18,7 +18,7 @@
 
 - 📫 **How To Reach Me : Mail Id : hrutiktakke@gmail.com, [LinkedIn Profile](https://www.linkedin.com/in/hrutik-takke-b277541a6/)**
 
-- ⚡ **Fun Fact : Interested In Learning New Things, Reading Books, Playing Outdoor games.**
+- ⚡ **Fun Fact : Interested In Learning New Things, Reading Books, Playing Outdoor Games.**
 
 <h3 align="left">Connect Me Through : </h3>
 <p align="left">
